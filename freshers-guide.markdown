@@ -184,7 +184,7 @@ effort because somebody else cleans up the mess anyway – is a big trap,
 please try to avoid it if you can.
 
 Overall, living in Exeter House is very comfortable. As it is modern, it
-may lack some charm or the weight of an old architecture, but at the same
+may lack some charm or the weight ofan old architecture, but at the same
 time you won’t have to live in old squeaky, dusty and moist rooms, as is
 the student stereotype. The bathroom is great (but check out the light
 above the mirror as it is less unforgiving than the main light in early
